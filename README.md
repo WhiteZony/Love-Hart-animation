@@ -1,2 +1,0 @@
-# Love-Hart-animation
-Animatiom
